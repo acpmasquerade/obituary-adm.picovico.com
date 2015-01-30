@@ -9,7 +9,7 @@ But friend, you got older day by day, and I couldn't make myself see any longer 
 
 You must have reached the Purgatory and you will soon rejoice the serenity of heaven. However, If you have to be resurrected, yes I will bring you down. And yes, I will be honored.
 
-Yours,
+Yours,  
 acpmasquerade
 
 
